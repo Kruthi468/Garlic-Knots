@@ -1,0 +1,1 @@
+These homemade garlic knots are extra soft and fluffy, made from my favorite 6 ingredient pizza dough, and are topped with flavorful garlic herb butter before AND after baking.
